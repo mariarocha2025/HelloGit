@@ -1,9 +1,7 @@
 Hola!
 Bienvenido a mi Proyecto HelloGit
 
-Hello GitHub
 
 Oliver Alan Hernandez Medina
-
-
+Hola, Soy Anette Guadalupe Quiroz Cruz 21580058
 
