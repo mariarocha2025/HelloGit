@@ -8,3 +8,4 @@ Andres Garcia Perez #21580032 Rocha la mejor profe de TICs. Gracias
 Maria Fernanda Gaona Reyes
 Hugo Eduardo Tello Estrada
 Roberto Elí Badillo Mendoza
+Hernandez Aldama Samuel
