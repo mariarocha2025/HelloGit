@@ -11,3 +11,10 @@ Roberto Elí Badillo Mendoza
 Hernandez Aldama Samuel
 Reynaldo Javier Perez Juarez
 Juan Jose Carrizalez Alvarez
+David Chavez Gutierrez 
+Victor Santiago Gonzálezzz 
+Itzel Alessandra Ponce Espinosa...Saludosss:D
+Ruth Esmeralda Méndez Bustos
+Kenia Berenice Segura Escobedo
+Orlando Yahir Arias Puente 21580007
+Vania Michelly Hidalgo Malpica
