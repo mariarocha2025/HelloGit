@@ -10,3 +10,5 @@ Hugo Eduardo Tello Estrada
 Roberto Elí Badillo Mendoza
 Hernandez Aldama Samuel
 Reynaldo Javier Perez Juarez
+Kenia Berenice Segura Escobedo
+
