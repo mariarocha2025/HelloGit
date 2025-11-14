@@ -11,4 +11,7 @@ Roberto Elí Badillo Mendoza
 Hernandez Aldama Samuel
 Reynaldo Javier Perez Juarez
 Kenia Berenice Segura Escobedo
+Orlando Yahir Arias Puente 21580007
+Vania Michelly Hidalgo Malpica
+
 
