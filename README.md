@@ -10,6 +10,7 @@ Hugo Eduardo Tello Estrada
 Roberto Elí Badillo Mendoza
 Hernandez Aldama Samuel
 Reynaldo Javier Perez Juarez
+Juan Jose Carrizalez Alvarez
 David Chavez Gutierrez 
 Victor Santiago Gonzálezzz 
 Itzel Alessandra Ponce Espinosa...Saludosss:D
