@@ -10,4 +10,6 @@ Hugo Eduardo Tello Estrada
 Roberto Elí Badillo Mendoza
 Hernandez Aldama Samuel
 Reynaldo Javier Perez Juarez
+Orlando Yahir Arias Puente 21580007
 Vania Michelly Hidalgo Malpica
+
