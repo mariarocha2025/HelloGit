@@ -12,11 +12,14 @@ Hernandez Aldama Samuel
 Reynaldo Javier Perez Juarez
 Edith Piña Portillo 
 Juan Jose Carrizalez Alvarez
-David Chavez Gutierrez 
-Victor Santiago Gonzálezzz 
+David Chavez Gutierrez
+Victor Santiago Gonzálezzz
 Itzel Alessandra Ponce Espinosa...Saludosss:D
 Ruth Esmeralda Méndez Bustos
 Kenia Berenice Segura Escobedo
 Orlando Yahir Arias Puente 21580007
 Vania Michelly Hidalgo Malpica
+Jackeline Suzett Martinez Helmcke Herrera (21580834)
+José Armando Martínez Martínez 21580048
+Lisset Isidro Sanchez
 
