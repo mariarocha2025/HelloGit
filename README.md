@@ -18,6 +18,7 @@ Ruth Esmeralda Méndez Bustos
 Kenia Berenice Segura Escobedo
 Orlando Yahir Arias Puente 21580007
 Vania Michelly Hidalgo Malpica
+Ramirez Sanchez David Gerardo
 Erick De Jesus Hernandez Garcia
 Erika Ramirez Chavarria
 Jackeline Suzett Martinez Helmcke Herrera (21580834)
