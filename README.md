@@ -1,6 +1,5 @@
-Hola!
-Bienvenido a mi Proyecto HelloGit
 
+=======
 Victor Manuel Castillo López
 Hola, Soy Anette Guadalupe Quiroz Cruz 21580058
 Oliver Alan Hernandez Medina
@@ -19,7 +18,7 @@ Ruth Esmeralda Méndez Bustos
 Kenia Berenice Segura Escobedo
 Orlando Yahir Arias Puente 21580007
 Vania Michelly Hidalgo Malpica
+Erika Ramirez Chavarria
 Jackeline Suzett Martinez Helmcke Herrera (21580834)
 José Armando Martínez Martínez 21580048
 Lisset Isidro Sanchez
-
