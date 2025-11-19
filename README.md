@@ -10,6 +10,7 @@ Hugo Eduardo Tello Estrada
 Roberto Elí Badillo Mendoza
 Hernandez Aldama Samuel
 Reynaldo Javier Perez Juarez
+Edith Piña Portillo 
 Juan Jose Carrizalez Alvarez
 David Chavez Gutierrez
 Victor Santiago Gonzálezzz
@@ -21,3 +22,4 @@ Vania Michelly Hidalgo Malpica
 Jackeline Suzett Martinez Helmcke Herrera (21580834)
 José Armando Martínez Martínez 21580048
 Lisset Isidro Sanchez
+
