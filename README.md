@@ -18,4 +18,5 @@ Ruth Esmeralda Méndez Bustos
 Kenia Berenice Segura Escobedo
 Orlando Yahir Arias Puente 21580007
 Vania Michelly Hidalgo Malpica
+José Armando Martínez Martínez 21580048
 Lisset Isidro Sanchez
