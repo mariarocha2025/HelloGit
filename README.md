@@ -24,4 +24,5 @@ Erika Ramirez Chavarria
 Jackeline Suzett Martinez Helmcke Herrera (21580834)
 José Armando Martínez Martínez 21580048
 Lisset Isidro Sanchez
+Lizeth Adriana Popo Zapata 21580055
 
