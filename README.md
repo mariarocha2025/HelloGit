@@ -24,6 +24,6 @@ Jackeline Suzett Martinez Helmcke Herrera (21580834)
 José Armando Martínez Martínez 21580048
 Lisset Isidro Sanchez
 Lizeth Adriana Popo Zapata 21580055
-
 Antonio Alarcon Figueroa 22580095
 Jair Azael Solis Cervantes 22580093
+Castro Morales Joaquin Mauricio 21580016
