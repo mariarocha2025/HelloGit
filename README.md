@@ -29,3 +29,10 @@ Antonio Alarcon Figueroa 22580095
 Castro Morales Joaquin Mauricio 21580016
 Bryan Caleb Martinez Cavazos 22580076
 Marco Antonio Flores Hernandez 22580045 olaprofe
+
+Daniela Cervantes Cruz 22580097
+
+
+
+
+
