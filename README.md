@@ -28,3 +28,6 @@ Lizeth Adriana Popo Zapata 21580055
 Antonio Alarcon Figueroa 22580095
 Sergio Gonzalez Dominguez 19580605
 
+Castro Morales Joaquin Mauricio 21580016
+Bryan Caleb Martinez Cavazos 22580076
+Marco Antonio Flores Hernandez 22580045 olaprofe
