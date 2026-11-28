@@ -26,4 +26,5 @@ Lisset Isidro Sanchez
 Lizeth Adriana Popo Zapata 21580055
 
 Antonio Alarcon Figueroa 22580095
+Sergio Gonzalez Dominguez 19580605
 
